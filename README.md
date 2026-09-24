@@ -11,9 +11,8 @@
 
 - 💬 Ask me about **nothing please, I'm as dumb as it gets**
 
-- 📫 How to reach me **if you really have to, discord: @foksicek**
+- 📫 How to reach me **if you really have to, discord: @foksicek, or the email linked to my GitHub profile**
 
-- ⚡ Fun fact **I'm dumb and lazy**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
